@@ -1,16 +1,16 @@
 # 蘑菇网页版入口|蘑菇tv官网进入|蘑菇tv网页版登录入口|蘑菇tv网页版|蘑菇app电脑版|蘑菇tv在线官网
 
-每日大赛最新地址👋
+# 蘑菇视频最新地址👋
 
-👉 【每日大赛最新地址1】： https://mgys.pages.dev
+👉 【蘑菇视频最新地址1】： https://mgys.pages.dev
 
-👉 【每日大赛最新地址2】： https://mgav.pages.dev
+👉 【蘑菇视频最新地址2】： https://mgav.pages.dev
 
-👉 【每日大赛最新地址3】： https://mgo.pages.dev
+👉 【蘑菇视频最新地址3】： https://mgo.pages.dev
 
-👉 【每日大赛最新地址4】： https://mggw.pages.dev
+👉 【蘑菇视频最新地址4】： https://mggw.pages.dev
 
-👉 【每日大赛永久地址5】： https://dizhiok.pages.dev
+👉 【蘑菇视频永久地址5】： https://dizhiok.pages.dev
 
 # 失联获取最新地址方法：发任意内容到邮箱：usayesok@gmail.com 获取最新地址
 
